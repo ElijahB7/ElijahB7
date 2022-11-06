@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ElijahB7
-- 👀 I’m interested in sports and nature
+- 👀 I’m interested in sports, nature, and blockchain
 - 📫 How to reach me gwitts2006@gmail.com
 
 <!---
